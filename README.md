@@ -1,2 +1,1 @@
-# yanglagiviral
-yanglagiviral
+# [yanglagiviral](https://yanglagiviral.pages.dev)
